@@ -1,1 +1,1 @@
-# pliko-
+# pinko1-modelo
